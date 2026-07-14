@@ -5,7 +5,7 @@ Any questions or comments: andrey@beblia.com
 
 Use at your own discretion, no need to ask for permission, no warranty’s.
 
-Author: Proud Slave of Christ
+Author: Nameless, Proud Slave of Christ
 
 Visit our site:
 https://beblia.com
